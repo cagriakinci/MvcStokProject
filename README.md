@@ -22,4 +22,4 @@
 
 [Satış İşlemleri](https://i.hizliresim.com/h8qohes.png)
 
-[Ürün Ekleme](https://i.hizliresim.com/cix3eks.png)
+[Ürün Ekleme](https://i.hizliresim.com/cix3eks.png) 
