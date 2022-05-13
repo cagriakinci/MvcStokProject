@@ -12,14 +12,14 @@
 
 ### Resimler
 
-[Giriş Paneli](https://i.hizliresim.com/rodd2oj.png)
+[Giriş Paneli](https://i.hizliresim.com/ckdmbw6.png)
 
-[Ürünler Sayfası](https://i.hizliresim.com/6jg3h58.png)
+[Ürünler Sayfası](https://i.hizliresim.com/l4biheo.png)
 
-[Ürün Adına Göre Arama](https://i.hizliresim.com/5hrrtnc.png)
+[Ürün Adına Göre Arama](https://i.hizliresim.com/oekffob.png)
 
-[Sayfalama Yapısı](https://i.hizliresim.com/iqi8a01.png)
+[Sayfalama Yapısı](https://i.hizliresim.com/o9ku3gk.png)
 
-[Satış İşlemleri](https://i.hizliresim.com/p6fo5qm.png)
+[Satış İşlemleri](https://i.hizliresim.com/h8qohes.png)
 
-[Ürün Ekleme](https://www.hizliresim.com/q6o0vjb)
+[Ürün Ekleme](https://i.hizliresim.com/cix3eks.png)
